@@ -1,1 +1,1 @@
-Carde pessoal com todas as minhas redes.gi
+Card pessoal com todas as minhas redes.gi
